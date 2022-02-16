@@ -31,7 +31,11 @@ Black borders with difficulty on the side heavily inspired by SquidTheCat
 
 The Improv | Dj Quads
 
+Special fuck you to LeafyIsHere for that 10 second transition clip
+
 TF2 Bit inspired by Sunlust / Drew (the splitgate part especially)
+
+Toastee being the one I made that for cuz it's funny
 
 Don't Sweat The Technique | Eric B. & Rakim
 
