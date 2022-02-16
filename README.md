@@ -1,3 +1,4 @@
+## Credits for the video.
 Kickflip Quake created by Michael "Squirt" Buettner
 
 All gameplay recorded by Fluffacorn
