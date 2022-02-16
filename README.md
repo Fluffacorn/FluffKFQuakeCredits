@@ -11,6 +11,8 @@ PGA Tour 96 Title Screen Music | Marc Farly, Rob Hubbard, Tony Berkeley, David W
 
 Hatsune Miku dance animation created by JohnSu
 
+Low FPS when you're bad very obviously inspired by Into the Spider-Verse
+
 Superman | Goldfinger
 
 The Sound of Rain | BigRicePiano
